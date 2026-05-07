@@ -1,4 +1,4 @@
-
+elite Script for bedwars offers the most advanced bedwars Script, with silent aim and unlimited stamina. Perfect for dominating any match.
 
 
 
